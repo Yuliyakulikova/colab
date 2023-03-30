@@ -1,0 +1,1 @@
+Sasha walked along the highway
